@@ -5,7 +5,7 @@
 
 <img width="700" height="500" alt="tumblr_2c3f181d301ed3e8bab8a48ad6db3fa9_0cee0e7a_250" src="https://github.com/user-attachments/assets/c7296659-e9e5-4059-b646-9a0de9fd2b55" />
 
-𓏲𝄢　𓈒　「 s᥆ᥣ / ᥒᥡ᥊ 」
+𓏲𝄢　𓈒　「 s᥆ᥣ / іsᥲ 」
 
 5𝗍ᥱᥱᥒ ︵︵ ![tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75](https://github.com/user-attachments/assets/61acc6d9-c148-48f2-a9b2-4c0c185ba011)
 
