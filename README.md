@@ -7,10 +7,10 @@
 
 𓏲𝄢　𓈒　「 s᥆ᥣ / іsᥲ 」
 
-5𝗍ᥱᥱᥒ ︵︵ ![tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75](https://github.com/user-attachments/assets/61acc6d9-c148-48f2-a9b2-4c0c185ba011)
+mіᥒ᥆r ︵︵ ![tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75](https://github.com/user-attachments/assets/61acc6d9-c148-48f2-a9b2-4c0c185ba011)
 
-ᥲᥒᥡ ₒᵣ 𝗍һᥱᥡ 𝗍һᥱm)
-. ⍴𝗍 ᥆ᥒᥣᥡ gі𝗍һᥙᑲ
+ᥲᥒᥡ / ᥲᥣᥣ)
+. ძᥱmіgіrᥣ
 
 ![tumblr_bf64cc325fd55c591f5b1cf9489e1689_e0ce62cc_250](https://github.com/user-attachments/assets/273ea996-700e-4e37-a8b3-926fd15c0ad9)
 
